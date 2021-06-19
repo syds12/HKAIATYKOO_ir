@@ -1,1 +1,0 @@
-# HKAIATYKOO_ir
